@@ -1,3 +1,5 @@
+# Tıklayın: **[Ortak ATM](https://www.kredihesapla.com.tr/bankalar/ortak-atm-ucretsiz-ortak-atm-ler.html)** (Tüm bankaların ücretsiz ortak ATM’leri listesi)
+
 Türkiye'de ücretsiz ortak atm dönemi başladı. İşte tüm bankaların ortak ATM hizmeti:
 Tıklayın: [Ortak ATM](https://www.kredihesapla.com.tr/bankalar/ortak-atm-ucretsiz-ortak-atm-ler.html) (Tüm bankaların ücretsiz ortak ATM’leri listesi
 
